@@ -1,4 +1,4 @@
-# 
+# instant Affinity Photo para PC ferramentas é o melhor Affinity Photo para PC ferramentas com edição HDR e scripting. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
